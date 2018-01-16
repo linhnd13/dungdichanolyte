@@ -1,0 +1,2 @@
+# dungdichanolyte
+Đây là địa chỉ tin cậy cung cấp dung dịch Anolyte do chính ông già Ozone (bác Nguyễn Văn Khải) nghiên cứu. Dung dịch Anolyte được điện phân từ dung dịch muối ăn tinh khiết (dung dịch NaCl) có rất nhiều công dụng và ứng dụng trong cuộc sống đã được bác Nguyễn Văn Khải ứng dụng và kiểm nghiệm (diệt virus, vi khuẩn gây ra các bệnh như viêm họng, thủy đậu, viêm da, thượng bì bóng nước, chân tay miệng,.....) Hãy inbox hoặc liên hệ trực tiếp với chúng tôi theo số điện thoại 01668807725/0979096780 để được tư vấn và hướng dẫn cách sử dụng dung dịch anolyte
